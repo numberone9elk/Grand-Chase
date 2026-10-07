@@ -215,4 +215,4 @@ Grand Chase is available as a full free version, providing all features and upda
 **Download Grand Chase now and join the fight to restore peace in Bermesiah!**
 
 ---
-**Last updated:** 2026-10-06 22:06:27 UTC
+**Last updated:** 2026-10-07 01:56:30 UTC
